@@ -1,1 +1,1 @@
-# project-of-empowering-communities
+# project-of-empowering-communities.
